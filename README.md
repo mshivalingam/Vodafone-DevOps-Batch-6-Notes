@@ -1,1 +1,1 @@
-# Vodafone-DevOps-Batch-6-Notes
+full stock data scicence team
